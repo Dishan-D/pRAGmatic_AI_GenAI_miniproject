@@ -1,0 +1,1 @@
+# pRAGmatic_AI_GenAI_miniproject
